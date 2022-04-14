@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MitKat , Екатери!
+- 👋 Hi, I’m Katerina!
 - 👀 I’m interested in 
 -   🌱  Сейчас я учусь в htmlacademy
 - 💞️ I’m looking to collaborate on ...
